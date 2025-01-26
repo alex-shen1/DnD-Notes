@@ -27,3 +27,12 @@ Eva immediately falls off lmao
 Interrupted lol
 ## ??
 Drained trees
+Enter workshop
+
+Incubus pretending to be gnome – sussed out by Divine Sense
+Beat the shit out of him
+
+Some other base of operations behind
+
+Mrs. Claus died, Santa trying to bring her back
+Ritual circles drawn, last journal entry expresses regret
