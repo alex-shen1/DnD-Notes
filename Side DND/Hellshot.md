@@ -32,3 +32,11 @@ Teleported into the house of "ace detective, Blue tiefling Cormin Flint" -> summ
 	- Trying to collect money to find further e.g. soul coin (very valuable, ~50 platinum), spent soul coins (common, ~1 platinum), obsidian chit (~1 gp)
 		- Trying to get at least 1 soul coin
 	- Higher levels (1st, 2nd) of hell 
+
+
+Lead from "lynx-looking imp", running away with man on shoulders, cultist being chased by Zariel
+
+Party asks Shelly to take them to a market
+- Walk, talk about gooning
+- Herd of orange-hided cows stampeded down the street
+- Catapult fires, 
