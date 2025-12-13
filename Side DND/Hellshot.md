@@ -36,7 +36,15 @@ Teleported into the house of "ace detective, Blue tiefling Cormin Flint" -> summ
 
 Lead from "lynx-looking imp", running away with man on shoulders, cultist being chased by Zariel
 
+
 Party asks Shelly to take them to a market
 - Walk, talk about gooning
+### Stampede
 - Herd of orange-hided cows stampeded down the street
 - Catapult fires, 
+"Stench cows" (common delicacy) run by, rotting cheese/flesh odor hits. 
+- Stench inflicts poison, MUST cover nose
+### Market
+Black metal statue, guy grinning pulling his own head off. Water flowing out of gap
+- Shelly is searching for demonic cultists <5% 
+Gaul Soodman offers us deals
