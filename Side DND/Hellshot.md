@@ -48,3 +48,12 @@ Party asks Shelly to take them to a market
 Black metal statue, guy grinning pulling his own head off. Water flowing out of gap
 - Shelly is searching for demonic cultists <5% 
 Gaul Soodman offers us deals
+
+Bronze citadel IS a fallen city
+
+Shelly takes them to Cormin's place
+
+### Meeting Corwin
+Painting _Canyon of the Tower_ can show you things
+Zariel's captain is angling to buy it
+Boolean Plaza, look for spine devil named Truth. Avoid twin, False. He'll direct us to the auction house
